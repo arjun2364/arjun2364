@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @arjun2364
+- 👋 Hi, I’m @x3weird-
 - 👀 I’m interested in coding & entrepreneurship
 
 <!---
